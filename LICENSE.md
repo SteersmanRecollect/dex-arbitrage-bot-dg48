@@ -1,4 +1,4 @@
-# 
+# osmosis trading bot new Strategy | fee-optimization & market-making is the best osmosis trading bot, featuring fee-optimization and market-making. Smart, fast, and optimized for
 
 
 
